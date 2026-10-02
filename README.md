@@ -8,6 +8,8 @@
 
 ### `engineering things at every layer of the stack`
 
+### `Best projects are kept private btw`
+
 <img src="https://komarev.com/ghpvc/?username=7id0o&style=for-the-badge&label=PROFILE+VIEWS" />
 
 </div>
